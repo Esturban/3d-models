@@ -1,0 +1,1 @@
+Smaller Universal Filament Clip by zxsix on Thingiverse: https://www.thingiverse.com/thing:4585786
